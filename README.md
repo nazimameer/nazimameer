@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **nazimameerpp@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/jxPV6](https://shorturl.at/jxPV6)
-
 - ⚡ Fun fact **Everything take as a challenge**
 
 <h3 align="left">Connect with me:</h3>
